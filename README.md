@@ -18,7 +18,7 @@
 
 
   
-<p align="center">" 🇺​​🇳​​🇹​​🇮​​🇱​ ​🇳​​🇪​​🇽​​🇹​ ​🇹​​🇮​​🇲​​🇪​ ​🇫​​🇷​​🇮​​🇪​​🇳​​🇩​... "
+<p align="center">" ɪ ᴡᴏɴᴅᴇʀ ɪꜰ ꜱɴᴏᴡ ᴄᴏᴍᴇꜱ ɪɴ ꜰʟᴀᴠᴏʀꜱ "
 <p align="center"> ʜᴇʏᴀ! ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀᴠᴇʀʏ! ʏᴏᴜ'ʟʟ ᴜꜱᴜᴀʟʟʏ ꜰɪɴᴅ ᴍᴇ ᴡᴀɴᴅᴇʀɪɴɢ ᴀʀᴏᴜɴᴅ ᴛʜᴇ ᴍᴀᴘ! 
 ◝(ᵔᗜᵔ)◜ 
   ​🇮​❜​🇲​ ​🇲​​🇴​​🇸​​🇹​​🇱​​🇾​ ​🇧​​🇾​ ​🇲​​🇾​​🇸​​🇪​​🇱​​🇫​ ​🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇦​ ​🇨​​🇭​​🇺​​🇩​ ​🇴​​🇷​ ​🇾​​🇴​​🇺​❜​🇱​​🇱​ ​🇸​​🇪​​🇪​ ​🇲​​🇪​ ​🇼​​🇮​​🇹​​🇭​ ​🇲​​🇾​ ​🇧​​🇪​​🇸​​🇹​ ​🇫​​🇷​​🇮​​🇪​​🇳​​🇩​ ​🇸​​🇮​​🇱​​🇱​​🇾​!
@@ -81,6 +81,7 @@
  <p align="center"> <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/8206e88e-b061-4cdb-9fda-89f7bd42d89c" />
 
 
+
   
   <p align="right"> Check out my art plz :3 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/bafe6c8f-9bd7-4f6c-9a0a-4d33f3d57698" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/af3579cb-d678-45da-b220-0250e117ed86" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d4fbb59c-9b43-43f7-ae8d-0542847ff25a" />
 
@@ -92,6 +93,11 @@
  <p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/752d0f63-fba4-42ad-af9c-b1dff883bfaf" />
 
  <p align="center"> <img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/719f8a27-d409-4027-b690-07f8da23235e" />
+
+
+
+<p align="right"> (ART BY ME) <img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/d825ae33-d04b-484c-90c2-963192e5bccb" />
+
 
 
 
