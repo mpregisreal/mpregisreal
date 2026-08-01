@@ -107,9 +107,9 @@
 
 
 
-<p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/594cc9e4-5e08-4701-bee2-a6eff23ce04d" /> ✧･ﾟ: *✧･ﾟ:* STAMP WALLLLLL *ੈ✩‧₊˚
+<p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/594cc9e4-5e08-4701-bee2-a6eff23ce04d" /> ✧･ﾟ: *✧･ﾟ:* STAMP WALLLLLL *ੈ✩‧₊˚ 
 
-
+<p align="center"> (I DONT PLAY FORSAKEN I JUST LIKE THE CHARACTERS OK? OK!)
 
 
 
