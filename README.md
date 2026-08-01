@@ -101,8 +101,4 @@
 
 
 
-<p align="center"> ⋆.ೃ࿔*:･" Whatever you do at the crossroads. Keep going forward. "ˏˋ°•*⁀➷
-
-
-<p align="center"> Or something like that
-<p align="center"> (I was never really good with endings)
+<p align="center"> ⋆.ೃ࿔*:･" So much beauty we need to look after "ˏˋ°•*⁀➷
