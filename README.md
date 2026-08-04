@@ -115,9 +115,15 @@ https://github.com/user-attachments/assets/9bc49641-bbdf-4e2e-b754-5dbc99ad67ce
 CR: @octylish ON YOUTUBE!
 
 
+<p align="center"> <img width="2048" height="250" alt="image" src="https://github.com/user-attachments/assets/6982a3c9-306d-4663-9ea9-33c0cb99c611" />
 
 
 
+<p align="center"> <img width="2048" height="1536" alt="Untitled112_20260803161410" src="https://github.com/user-attachments/assets/1f2c730e-21f1-4c9e-b382-3f8be3d62d78" /> FAMILY PHOTO!!!!! >_<
+
+
+
+<p align="center"> <img width="1024" height="193" alt="image" src="https://github.com/user-attachments/assets/8a269cbd-3fd8-4f09-b87c-16bf8fc57fce" />
 
 
 
