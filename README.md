@@ -88,7 +88,7 @@
 
 
 
-[straw.page](https://haiiix3.straw.page)  <----- REALLY COOL ART TRUST ⚞^. .^⚟
+[STRAW.PAGE](https://haiiix3.straw.page)  <----- REALLY COOL ART TRUST ⚞^. .^⚟
 
 
  <p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/752d0f63-fba4-42ad-af9c-b1dff883bfaf" />
