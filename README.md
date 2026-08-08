@@ -68,7 +68,7 @@
 <p align="center"> DNI: PEDOS, TRUMP SUPPORTERS, ANTI-YUMESHIP, HOMOPHOBIC PEOPLE, d3rlord3 HATERS, MEAN PEOPLE, YUME DOUBLES (unless stated otherwise), SELFCEST  ≽(◉˕ ◉ ≼マ
 
 
-NO JAX. NO JAX!! NO NO NO NO NO JAX!!!! NO. I DON'T WANT HER ANYWHERE NEAR HERE. AM. I. CLEAR./silly/srs
+<p align="center"> NO JAX. NO JAX!! NO NO NO NO NO JAX!!!! NO. I DON'T WANT HER ANYWHERE NEAR HERE. AM. I. CLEAR./silly/srs
 
 <p align="center"><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/441fd6ee-ac37-4b08-a384-28bc55b08ef5" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/7ad643b8-cdf2-4b6d-86a7-3a5dabde7ee6" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/14324388-ff45-4e4b-9345-3a76c1951423" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/5a115138-2dd8-4ece-bd41-1067502772a3" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/0f1e9182-d4a6-45c4-b673-c1c5977ee1f1" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/c1730063-4632-41ca-8e7e-44916e139daa" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/614920e6-4d0c-424d-bb6f-6c5a27af5f02" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/0cb69605-a8ef-4fbf-8f7b-9a29846cabad" /><img width="200" height="193" alt="image" src="https://github.com/user-attachments/assets/4b29f46d-b62b-470f-8532-15e676866ddd" /> but seriously I HATE Jax so try not to mention him around me (block me if u want i'm not changing my mind)
 
