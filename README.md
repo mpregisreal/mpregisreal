@@ -1,5 +1,4 @@
-<img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/e5ca565f-3858-4215-ad2f-a50d47cc28d5" />
-<p align=" center"> <img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/52dd93ec-9adf-4bd9-ad53-205539e7d2d8" />
+<img width="1024" height="456" alt="image" src="https://github.com/user-attachments/assets/3a4e9385-ab28-4a39-8d17-5d32c99c6d73" />
 <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/93f736d7-956d-4344-aa4f-986960a92558" />
 
 
@@ -134,7 +133,7 @@ CR: @octylish ON YOUTUBE!
 
 <p align="center"> <img width="1024" height="193" alt="image" src="https://github.com/user-attachments/assets/8a269cbd-3fd8-4f09-b87c-16bf8fc57fce" />
 
-
+<p align="center"> <img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/52dd93ec-9adf-4bd9-ad53-205539e7d2d8" />
 
 <p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/594cc9e4-5e08-4701-bee2-a6eff23ce04d" /> ✧･ﾟ: *✧･ﾟ:* STAMP WALLLLLL *ੈ✩‧₊˚ 
 
