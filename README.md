@@ -103,7 +103,7 @@
 
 
 
-<p align="right"> (ART BY ME) <img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/d825ae33-d04b-484c-90c2-963192e5bccb" />
+<p align="right"> (ART BY ME. he's my persona) <img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/d825ae33-d04b-484c-90c2-963192e5bccb" />
 
 
 
