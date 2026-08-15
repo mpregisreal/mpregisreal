@@ -19,8 +19,7 @@
 <p align="center">" ɪ ᴡᴏɴᴅᴇʀ ɪꜰ ꜱɴᴏᴡ ᴄᴏᴍᴇꜱ ɪɴ ꜰʟᴀᴠᴏʀꜱ "
 <p align="center"> ʜᴇʏᴀ! ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀᴠᴇʀʏ! ʏᴏᴜ'ʟʟ ᴜꜱᴜᴀʟʟʏ ꜰɪɴᴅ ᴍᴇ ᴡᴀɴᴅᴇʀɪɴɢ ᴀʀᴏᴜɴᴅ ᴛʜᴇ ᴍᴀᴘ! 
 ◝(ᵔᗜᵔ)◜ 
-  ​🇮​❜​🇲​ ​🇲​​🇴​​🇸​​🇹​​🇱​​🇾​ ​🇧​​🇾​ ​🇲​​🇾​​🇸​​🇪​​🇱​​🇫​ ​🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇦​ ​🇨​​🇭​​🇺​​🇩​ ​🇴​​🇷​ ​🇾​​🇴​​🇺​❜​🇱​​🇱​ ​🇸​​🇪​​🇪​ ​🇲​​🇪​ ​🇼​​🇮​​🇹​​🇭​ ​🇲​​🇾​ ​🇧​​🇪​​🇸​​🇹​ ​🇫​​🇷​​🇮​​🇪​​🇳​​🇩​ ​🇸​​🇮​​🇱​​🇱​​🇾​!
-   I'm d3rlord3's CANON CHILD >ᴗ<
+  ​🇮​❜​🇲​ ​🇲​​🇴​​🇸​​🇹​​🇱​​🇾​ ​🇧​​🇾​ ​🇲​​🇾​​🇸​​🇪​​🇱​​🇫​ ​🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇦​ ​🇨​​🇭​​🇺​​🇩​. I'm d3rlord3's CANON CHILD >ᴗ<
   <p align="center"> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/a47a4aeb-9544-4ef0-b9ce-ead927217f70" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/8b263b5c-a238-4d13-ab20-762ee27d432c" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/f7c3dd5c-47d2-4707-86e2-9ca2ec20d9dc" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/30c29286-e55a-4e2d-aac7-6f130d2bf427" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/4c709197-67f7-46fa-9c22-e07d1eb994cc" />
 
 
