@@ -62,7 +62,7 @@
 
 
 
-<p align="center"> DNI: PEDOS, TRUMP SUPPORTERS, ANTI-YUMESHIP, HOMOPHOBIC PEOPLE, d3rlord3 HATERS, MEAN PEOPLE, YUME DOUBLES (unless stated otherwise), SELFCEST  ≽(◉˕ ◉ ≼マ
+<p align="center"> DNI: PEDOS, TRUMP SUPPORTERS, ANTI-YUMESHIP, HOMOPHOBIC PEOPLE, d3rlord3 HATERS, MEAN PEOPLE, YUME DOUBLES (unless stated otherwise), SELFCEST, MOONCOOKIE SHIPPERS (I don't like the ship it makes me uncomfy sorry not sorry)  ≽(◉˕ ◉ ≼マ
 
 
 <p align="center"> NO JAX. NO JAX!! NO NO NO NO NO JAX!!!! NO. I DON'T WANT HER ANYWHERE NEAR HERE. AM. I. CLEAR./silly/srs
