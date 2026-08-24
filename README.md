@@ -82,7 +82,7 @@
 
 
 
-<p align="center"> <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9b4c1ce6-4c0e-44b7-a92a-0d09b7045b52" />
+<p align="center"> <img width="736" height="556" alt="image" src="https://github.com/user-attachments/assets/fe2e8a2d-a2aa-44d5-8df9-520b890f7d12" />
 
 
  <p align="center"> <img width="1856" height="333" alt="image" src="https://github.com/user-attachments/assets/e749ae06-083a-46bb-b938-6135a63c4fb7" />
