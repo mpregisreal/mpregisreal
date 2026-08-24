@@ -40,7 +40,7 @@
 
 <p align="center"> ɪ ʟᴏᴠᴇ ᴍʏ ғʀɪᴇɴᴅs! ᴀʟᴛʜᴏᴜɢʜ sᴏᴍᴇᴛɪᴍᴇs ɪ ᴄᴀɴ ɢᴇᴛ ᴊᴇᴀʟᴏᴜs! ᴘʟᴇᴀsᴇ ᴋᴇᴇᴘ ᴛʜɪs ɪɴ ᴍɪɴᴅ! 
   
- <p align="center"> !!!! -I'M 18- ᴘᴇᴏᴘʟᴇ ᴜɴᴅᴇʀ 14 ɪᴡᴇᴄ OR DNI!!!! ₍^. .^₎⟆
+ <p align="center"> !!!!-I'M 18- ᴘᴇᴏᴘʟᴇ ᴜɴᴅᴇʀ 14 ɪᴡᴇᴄ OR DNI!!!! ₍^. .^₎⟆
 <p align="center"> <img width="900" height="400" alt="image" src="https://github.com/user-attachments/assets/e809ab77-142f-4b6e-9854-efad2a203279" />
 
 
