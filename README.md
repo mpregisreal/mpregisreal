@@ -1,4 +1,5 @@
 <p align="center"> 𝐼 𝒽𝑜𝓅𝑒 𝓉𝒽𝒶𝓉 𝓈𝒽𝑒 𝓁𝑜𝑜𝓀𝓈 𝒶𝓉 𝓂𝑒 𝒶𝓃𝒹 𝓉𝒽𝒾𝓃𝓀𝓈, "𝒮𝒽𝒾𝓉, 𝒽𝑒 𝒾𝓈 𝓈𝑜 𝓅𝓇𝑒𝓉𝓉𝓎"
+<p align="center"> 𝓢𝓸𝓶𝓮𝓽𝓱𝓲𝓷𝓰 𝓘 𝓬𝓪𝓷'𝓽 𝓫𝓮𝓵𝓲𝓮𝓿𝓮
   
 <p align="center"> <img width="450" height="562" alt="image" src="https://github.com/user-attachments/assets/371aa869-cc18-408e-85ae-826687a5a1ab" />
 
