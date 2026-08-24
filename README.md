@@ -96,7 +96,7 @@
 
 
 
-[STRAW.PAGE](https://haiiix3.straw.page)  <---------------------------- REALLY COOL SP TRUST ⚞^. .^⚟ ꉂ(˵˃ ᗜ ˂˵) (っ- ‸ - ς)
+[STRAW.PAGE](https://herecomethecats.straw.page)  <---------------------------- REALLY COOL SP TRUST ⚞^. .^⚟ ꉂ(˵˃ ᗜ ˂˵) (っ- ‸ - ς)
 
 
  <p align="center"> <img width="1920" height="164" alt="image" src="https://github.com/user-attachments/assets/2935b0c5-cce8-419f-8d66-4cd8e3bb3cce" />
