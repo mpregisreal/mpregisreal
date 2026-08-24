@@ -10,7 +10,7 @@
 
 
 
-<p align="center"> •❅───✧❅✦❅✧───❅•
+<p align="center"> ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
 
 <p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/002d3ccf-d368-4380-afeb-e9d55533d728" />
