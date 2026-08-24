@@ -1,5 +1,5 @@
-<img width="1563" height="500" alt="image" src="https://github.com/user-attachments/assets/aea62c0f-7b88-4c60-a806-713062182170" />
-
+<p align="center"> 𝐼 𝒽𝑜𝓅𝑒 𝓉𝒽𝒶𝓉 𝓈𝒽𝑒 𝓁𝑜𝑜𝓀𝓈 𝒶𝓉 𝓂𝑒 𝒶𝓃𝒹 𝓉𝒽𝒾𝓃𝓀𝓈, "𝒮𝒽𝒾𝓉, 𝒽𝑒 𝒾𝓈 𝓈𝑜 𝓅𝓇𝑒𝓉𝓉𝓎"
+  
 <p align="center"> <img width="450" height="562" alt="image" src="https://github.com/user-attachments/assets/371aa869-cc18-408e-85ae-826687a5a1ab" />
 
 <p align="center"> <img width="2048" height="293" alt="image" src="https://github.com/user-attachments/assets/3cf2b96c-5f55-4c4d-87b6-0d88edbcf718" />
