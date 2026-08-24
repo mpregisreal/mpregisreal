@@ -13,7 +13,7 @@
 <p align="center"> ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
 
-<p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/002d3ccf-d368-4380-afeb-e9d55533d728" />
+<p align="center"> <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/5f2c99aa-cc41-4075-bf1c-eae251902762" />
 
 
 
@@ -85,8 +85,8 @@
 <p align="center"> <img width="736" height="556" alt="image" src="https://github.com/user-attachments/assets/fe2e8a2d-a2aa-44d5-8df9-520b890f7d12" />
 
 
- <p align="center"> <img width="1856" height="333" alt="image" src="https://github.com/user-attachments/assets/e749ae06-083a-46bb-b938-6135a63c4fb7" />
-   
+ <p align="center"> <img width="1199" height="721" alt="image" src="https://github.com/user-attachments/assets/f7e61bd1-2407-4782-b387-b552dce0fd33" />
+
  <p align="center"> <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/8206e88e-b061-4cdb-9fda-89f7bd42d89c" />
 
 
@@ -99,7 +99,7 @@
 [STRAW.PAGE](https://haiiix3.straw.page)  <---------------------------- REALLY COOL SP TRUST ⚞^. .^⚟ ꉂ(˵˃ ᗜ ˂˵) (っ- ‸ - ς)
 
 
- <p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/752d0f63-fba4-42ad-af9c-b1dff883bfaf" />
+ <p align="center"> <img width="1920" height="164" alt="image" src="https://github.com/user-attachments/assets/2935b0c5-cce8-419f-8d66-4cd8e3bb3cce" />
 
  <p align="center"> <img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/719f8a27-d409-4027-b690-07f8da23235e" />
 
@@ -123,7 +123,7 @@ https://github.com/user-attachments/assets/9bc49641-bbdf-4e2e-b754-5dbc99ad67ce
 CR: @octylish ON YOUTUBE!
 
 
-<p align="center"> <img width="2048" height="250" alt="image" src="https://github.com/user-attachments/assets/6982a3c9-306d-4663-9ea9-33c0cb99c611" />
+<p align="center"> <img width="1024" height="260" alt="image" src="https://github.com/user-attachments/assets/164db808-8349-4ff2-ae05-218f6ce8f974" />
 
 
 
@@ -131,7 +131,9 @@ CR: @octylish ON YOUTUBE!
 
 
 
-<p align="center"> <img width="1024" height="193" alt="image" src="https://github.com/user-attachments/assets/8a269cbd-3fd8-4f09-b87c-16bf8fc57fce" />
+<p align="center"> <img width="1024" height="260" alt="image" src="https://github.com/user-attachments/assets/78a4e750-758c-4c45-884d-678a92251794" />
+
+
 
 <p align="center"> <img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/52dd93ec-9adf-4bd9-ad53-205539e7d2d8" />
 
