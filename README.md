@@ -33,7 +33,7 @@
 
 <p align="center"> ɪ ɢᴏ ʙʏ ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ! ~ ɪ'ᴍ ᴘᴀɴꜱᴇxᴜᴀʟ ᴀɴᴅ ᴀꜱᴇxᴜᴀʟ!  ∘ ∘ ∘ ( °ヮ° ) ?
 ᴅᴏ ɴᴏᴛ ʙᴇ ᴡᴇɪʀᴅ ᴛᴏ ᴍᴇ ᴘʟᴇᴀꜱᴇ... (¬`‸´¬)
-<p align="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/e0bea054-b701-46ff-a4e3-10fc3f42cb20" />
+<p align="center"> <img width="913" height="239" alt="image" src="https://github.com/user-attachments/assets/f88f669d-5939-47f1-baa3-6026c4e480e3" />
 
 
 
