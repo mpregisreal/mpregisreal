@@ -93,7 +93,7 @@
 
 
   
-  <p align="right"> Check out my art plz :3 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/bafe6c8f-9bd7-4f6c-9a0a-4d33f3d57698" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/af3579cb-d678-45da-b220-0250e117ed86" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d4fbb59c-9b43-43f7-ae8d-0542847ff25a" />
+  <p align="right"> Check out my art :3 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/bafe6c8f-9bd7-4f6c-9a0a-4d33f3d57698" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/af3579cb-d678-45da-b220-0250e117ed86" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d4fbb59c-9b43-43f7-ae8d-0542847ff25a" />
 
 
 
