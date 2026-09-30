@@ -1,7 +1,8 @@
 <p align="center"> 𝐼 𝒽𝑜𝓅𝑒 𝓉𝒽𝒶𝓉 𝓈𝒽𝑒 𝓁𝑜𝑜𝓀𝓈 𝒶𝓉 𝓂𝑒 𝒶𝓃𝒹 𝓉𝒽𝒾𝓃𝓀𝓈, "𝒮𝒽𝒾𝓉, 𝒽𝑒 𝒾𝓈 𝓈𝑜 𝓅𝓇𝑒𝓉𝓉𝓎"
 <p align="center"> 𝓢𝓸𝓶𝓮𝓽𝓱𝓲𝓷𝓰 𝓘 𝓬𝓪𝓷'𝓽 𝓫𝓮𝓵𝓲𝓮𝓿𝓮
   
-<p align="center"> <img width="450" height="562" alt="image" src="https://github.com/user-attachments/assets/b7ccd053-c22b-4238-8ae7-938e63129a95" />
+<p align="center"> <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/6bd6e757-237c-4d0c-9216-c8120c0ff5d6" />
+
 
 <p align="center"> <img width="2048" height="257" alt="image" src="https://github.com/user-attachments/assets/9ada70de-d066-4967-808a-4d83b5657650" />
 
