@@ -100,7 +100,7 @@
 
 
 
-[<img width="200" height="60" alt="Untitled141_20261003121602" src="https://github.com/user-attachments/assets/f1f6db70-dc77-4df8-951a-f788bb7f9d69" />](https://herecomethecats.straw.page)  <-------- REALLY COOL STRAW/ATA  ⚞^. .^⚟ -------->[<img width="200" height="80" alt="Untitled141_20261003121729" src="https://github.com/user-attachments/assets/fc0aebd5-7352-44c4-81f0-78f986efad40" />](https://mpregisreal.atabook.org/) (˶>⩊<˶)
+[<img width="300" height="80" alt="Untitled141_20261003121602" src="https://github.com/user-attachments/assets/f1f6db70-dc77-4df8-951a-f788bb7f9d69" />](https://herecomethecats.straw.page)  <-------- REALLY COOL STRAW/ATA  ⚞^. .^⚟ -------->[<img width="200" height="80" alt="Untitled141_20261003121729" src="https://github.com/user-attachments/assets/fc0aebd5-7352-44c4-81f0-78f986efad40" />](https://mpregisreal.atabook.org/) (˶>⩊<˶)
 
 
 
