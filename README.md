@@ -100,7 +100,8 @@
 
 
 
-[༊*·˚STRAW.PAGE 🌈🍭](https://herecomethecats.straw.page)  <----------- REALLY COOL STRAWPAGE  ⚞^. .^⚟ ꉂ(˵˃ ᗜ ˂˵) (っ- ‸ - ς)
+[<img width="200" height="60" alt="Untitled141_20261003121602" src="https://github.com/user-attachments/assets/f1f6db70-dc77-4df8-951a-f788bb7f9d69" />](https://herecomethecats.straw.page)  <-------- REALLY COOL STRAW/ATA  ⚞^. .^⚟ -------->[<img width="200" height="80" alt="Untitled141_20261003121729" src="https://github.com/user-attachments/assets/fc0aebd5-7352-44c4-81f0-78f986efad40" />](https://mpregisreal.atabook.org/)
+
 
 
  <p align="center"> <img width="1920" height="164" alt="image" src="https://github.com/user-attachments/assets/2935b0c5-cce8-419f-8d66-4cd8e3bb3cce" />
