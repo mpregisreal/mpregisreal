@@ -143,7 +143,19 @@ CR: @octylish ON YOUTUBE!
 
 <p align="center"> <img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/52dd93ec-9adf-4bd9-ad53-205539e7d2d8" />
 
-<p align="center"> <img width="2046" height="363" alt="image" src="https://github.com/user-attachments/assets/f84b83ae-8a17-4ba9-9d15-4d0d8ff6e8ff" /> ✧･ﾟ: *✧･ﾟ:* STAMP WALLLLLL *ੈ✩‧₊˚ 
+
+
+<p align="center"> <img width="2046" height="363" alt="image" src="https://github.com/user-attachments/assets/f84b83ae-8a17-4ba9-9d15-4d0d8ff6e8ff" /> 
+
+
+
+<details>
+  
+<summary> STAMPS (˶˃𐃷˂˶) </summary>
+  
+  
+  
+<p align="center"> ✧･ﾟ: *✧･ﾟ:* STAMP WALLLLLL *ੈ✩‧₊˚ 
 
 <p align="center"> (I DONT PLAY FORSAKEN I JUST LIKE THE CHARACTERS OK? OK!)
 
