@@ -106,7 +106,8 @@
 
 
 
- [<img width="300" height="100" alt="Untitled141_20261011172526" src="https://github.com/user-attachments/assets/00be5a24-1f6d-4a20-8db0-121bc74ee33c" />](https://iloveinfected.carrd.co)  <------------- MY CARRD/TIKTOK COMING SOON >_<
+ [<img width="300" height="90" alt="Untitled141_20261011182829" src="https://github.com/user-attachments/assets/9efdd433-31b6-4c64-bbc9-4c03275f5d9d" />](https://iloveinfected.carrd.co)  <----------- MY CARRD/TT >_< -----------> [<img width="300" height="90" alt="Untitled141_20261011182920" src="https://github.com/user-attachments/assets/c2444916-d9ca-47fc-bf57-58b79b235b7f" />](https://www.tiktok.com/@bunnibeanzz)
+
 
 
 
