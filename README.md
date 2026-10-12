@@ -106,7 +106,7 @@
 
 
 
- [<img width="300" height="90" alt="Untitled141_20261011182829" src="https://github.com/user-attachments/assets/9efdd433-31b6-4c64-bbc9-4c03275f5d9d" />](https://iloveinfected.carrd.co)  <----------- MY CARRD/TT -----------> [<img width="300" height="90" alt="Untitled141_20261011182920" src="https://github.com/user-attachments/assets/c2444916-d9ca-47fc-bf57-58b79b235b7f" />](https://www.tiktok.com/@bunnibeanzz)
+ [<img width="300" height="90" alt="Untitled141_20261011182829" src="https://github.com/user-attachments/assets/9efdd433-31b6-4c64-bbc9-4c03275f5d9d" />](https://iloveinfected.carrd.co)  <----------- MY CARD/TT -------> [<img width="300" height="90" alt="Untitled141_20261011182920" src="https://github.com/user-attachments/assets/c2444916-d9ca-47fc-bf57-58b79b235b7f" />](https://www.tiktok.com/@bunnibeanzz)
 
 
 
