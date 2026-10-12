@@ -106,7 +106,7 @@
 
 
 
- [<img width="300" height="100" alt="Untitled141_20261011172526" src="https://github.com/user-attachments/assets/00be5a24-1f6d-4a20-8db0-121bc74ee33c" />](https://iloveinfected.carrd.co)  <--------------------------- MY CARRDDDDDDD >_<
+ [<img width="300" height="100" alt="Untitled141_20261011172526" src="https://github.com/user-attachments/assets/00be5a24-1f6d-4a20-8db0-121bc74ee33c" />](https://iloveinfected.carrd.co)  <------------- MY CARRD/TIKTOK COMING SOON >_<
 
 
 
