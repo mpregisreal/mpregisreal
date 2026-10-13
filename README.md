@@ -149,10 +149,11 @@ CR: @octylish ON YOUTUBE!
 
 
 
-<p align="center"> <img width="735" height="551"alt="Untitled143_20261012191128" src="https://github.com/user-attachments/assets/a0f2afb2-2dc1-42d7-97e7-99b800cfc4c2" />
+<p align="center"> <img width="736" height="512" alt="image" src="https://github.com/user-attachments/assets/3671e723-92a2-47f3-acd0-483713f740b1" />
 
 
-<p align="center"> WEDDING PHOTO (also by me)
+
+<p align="center"> I WANT A PARTNER SO BADDDD (╥﹏╥)
 
 
 
