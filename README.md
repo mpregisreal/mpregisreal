@@ -149,7 +149,10 @@ CR: @octylish ON YOUTUBE!
 
 
 
-<p align="center"> <img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/52dd93ec-9adf-4bd9-ad53-205539e7d2d8" />
+<p align="center"> <img width="735" height="551"alt="Untitled143_20261012191128" src="https://github.com/user-attachments/assets/a0f2afb2-2dc1-42d7-97e7-99b800cfc4c2" />
+
+
+<p align="center"> WEDDING PHOTO (also by me)
 
 
 
