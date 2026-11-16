@@ -144,8 +144,6 @@ CR: @octylish ON YOUTUBE!
 
 
 
-<p align="center"> <img width="2048" height="1536" alt="Untitled112_20260803161410" src="https://github.com/user-attachments/assets/1f2c730e-21f1-4c9e-b382-3f8be3d62d78" /> FAMILY PHOTO!!!!! >_< (art by me)
-
 
 
 <p align="center"> <img width="1024" height="260" alt="image" src="https://github.com/user-attachments/assets/78a4e750-758c-4c45-884d-678a92251794" />
