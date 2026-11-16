@@ -152,7 +152,8 @@ CR: @octylish ON YOUTUBE!
 
 
 
-<p align="center"> <img width="736" height="512" alt="image" src="https://github.com/user-attachments/assets/3671e723-92a2-47f3-acd0-483713f740b1" />
+<p align="center"> <img width="1199" height="790" alt="image" src="https://github.com/user-attachments/assets/14764519-0116-44c9-89cf-c9f19c408cca" />
+
 
 
 
