@@ -6,7 +6,7 @@
 
 
 
-<p align="center"> <img width="2048" height="257" alt="image" src="https://github.com/user-attachments/assets/9ada70de-d066-4967-808a-4d83b5657650" />
+<p align="center"> <img width="2048" height="153" alt="image" src="https://github.com/user-attachments/assets/5abbd44a-550c-4bea-8bb2-a8598928fcc2" />
 
 
 
@@ -139,7 +139,8 @@ https://github.com/user-attachments/assets/9bc49641-bbdf-4e2e-b754-5dbc99ad67ce
 CR: @octylish ON YOUTUBE!
 
 
-<p align="center"> <img width="1024" height="260" alt="image" src="https://github.com/user-attachments/assets/164db808-8349-4ff2-ae05-218f6ce8f974" />
+<p align="center"> <img width="2048" height="236" alt="image" src="https://github.com/user-attachments/assets/2cd96d6e-9328-4960-9a42-794668986910" />
+
 
 
 
@@ -155,7 +156,6 @@ CR: @octylish ON YOUTUBE!
 
 
 
-<p align="center"> I WANT A PARTNER SO BADDDD (╥﹏╥)
 
 
 
