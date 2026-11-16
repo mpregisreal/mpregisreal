@@ -26,7 +26,8 @@
 <p align="center"> ʜᴇʏᴀ! ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀᴠᴇʀʏ! ʏᴏᴜ'ʟʟ ᴜꜱᴜᴀʟʟʏ ꜰɪɴᴅ ᴍᴇ ᴡᴀɴᴅᴇʀɪɴɢ ᴀʀᴏᴜɴᴅ ᴛʜᴇ ᴍᴀᴘ! 
 ◝(ᵔᗜᵔ)◜ 
   ​🇮​❜​🇲​ ​🇲​​🇴​​🇸​​🇹​​🇱​​🇾​ ​🇧​​🇾​ ​🇲​​🇾​​🇸​​🇪​​🇱​​🇫​ ​🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇦​ ​🇨​​🇭​​🇺​​🇩​. I'm d3rlord3's CANON SON >ᴗ<
-  <p align="center"><img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/8563b7f9-7976-4a6e-8e2b-c4f165d5c3ac" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/7ea58cdd-0414-4d8a-b716-3050584fe2a4" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/421410ee-e9f5-4227-a462-47a7b799df1d" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/bb508425-b12c-4134-b0a0-cf0703b54c03" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/6b817151-8ba5-4639-93e3-827ebf0d3dbb" />
+  <p align="center"><img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/8563b7f9-7976-4a6e-8e2b-c4f165d5c3ac" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/0164a8a4-5775-455c-b405-4a686aaebb43" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/f41d5bbb-52c1-424a-a060-e76794fcafe7" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/b5ec9b4e-b119-400b-9988-4d02a57ff11c" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/3d35d217-e68c-4e82-98d8-84d5bcaf7c3a" />
+
 
 
 
