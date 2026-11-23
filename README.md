@@ -29,7 +29,7 @@
 <p align="center"> ʜᴇʏᴀ! ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀᴠᴇʀʏ! ʏᴏᴜ'ʟʟ ᴜꜱᴜᴀʟʟʏ ꜰɪɴᴅ ᴍᴇ ᴡᴀɴᴅᴇʀɪɴɢ ᴀʀᴏᴜɴᴅ ᴛʜᴇ ᴍᴀᴘ! 
 ◝(ᵔᗜᵔ)◜ 
   ​🇮​❜​🇲​ ​🇲​​🇴​​🇸​​🇹​​🇱​​🇾​ ​🇧​​🇾​ ​🇲​​🇾​​🇸​​🇪​​🇱​​🇫​ ​🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇦​ ​🇨​​🇭​​🇺​​🇩​. I'm d3rlord3's CANON SON >ᴗ<
-  <p align="center"><img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/8563b7f9-7976-4a6e-8e2b-c4f165d5c3ac" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/0164a8a4-5775-455c-b405-4a686aaebb43" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/f41d5bbb-52c1-424a-a060-e76794fcafe7" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/b5ec9b4e-b119-400b-9988-4d02a57ff11c" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/3d35d217-e68c-4e82-98d8-84d5bcaf7c3a" />
+  <p align="center"><img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/df712ce0-8bfa-49a9-aaef-e97bfea4477b" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/c77c6f91-0fe4-45a5-a27b-5668183f4d5e" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/ffd6f670-420e-4c61-934f-d887236c2714" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/f846d424-522b-4aaf-a471-6bd894c71074" /> <img width="110" height="90" alt="image" src="https://github.com/user-attachments/assets/245be932-aa07-43fc-a5cd-da1dabd93092" />
 
 
 
@@ -66,7 +66,8 @@
 
 
 
-<p align="center"> <img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/b63094f8-e56b-4d98-8a20-60fc234a7b26" /> <img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/8231bdab-a2b8-4d27-98ae-0b4fc840b8f5" />
+<p align="center"> <img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/b63094f8-e56b-4d98-8a20-60fc234a7b26" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ec8400b5-2a46-4be9-8259-d725acddf59b" />
+
 
 
 
